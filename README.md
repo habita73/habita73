@@ -146,8 +146,8 @@ With a long-term goal of creating **scalable digital assets with recurring reven
 ## 📫 How to reach me
 
 - 🌐 https://sawarii.com  
-- 💼 LinkedIn:  
-- 📧 Email:  
+- 💼 LinkedIn: linkedin.com/in/faridhabita
+- 📧 Email: info@sawarii.com
 
 ---
 
